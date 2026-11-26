@@ -2,6 +2,8 @@
 <div align="center">
 
 <img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=900&size=44&pause=550&color=F97316&center=true&vCenter=true&width=1100&height=135&lines=EFT+ARENA+HACK+2026;PHANTOM+STRIKE+EDITION;AIMBOT+%7C+WALLHACK+%7C+NO+RECOIL;OWN+THE+ARENA" alt="EFT Arena Hack 2026" />
+<img width="1920" height="1080" alt="019fd3ca-5f45-73b4-8d20-3d706d49793b" src="https://github.com/user-attachments/assets/25c55328-368a-4e46-9bfe-46f4461dcba1" />
+
 
 <br/>
 
